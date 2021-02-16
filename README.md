@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @hiraeth282
+- 👀 I’m interested in video games, D&D, and coding!
+- 🌱 I’m currently learning super basic coding (no idea what I'm doing 👍)
+- 📫 How to reach me ... my email is evelynmarie282@gmail.com
